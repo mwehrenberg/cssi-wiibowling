@@ -1,3 +1,6 @@
+
+CODE BELONGS TO: MOLLY WEHRENBERG, MAYA LEE, NAHYUN KIM
+
 Welcome to Glitch
 =================
 
